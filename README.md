@@ -1,0 +1,1 @@
+# SOLE6000PWiFi
